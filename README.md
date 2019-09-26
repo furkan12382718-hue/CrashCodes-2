@@ -29,7 +29,7 @@ SEE THIS YOUTUBE:
 
 [Instagram](https://instagram.com/UnderCodeTestingCompany) 
 
-[GitHub](https://github.com/UndercodeTestingCompany)
+[GitHub](https://github.com/UndercodeTestingC)
 
 [YouTube](http://https://youtu.be/wzfsVoRNezQ) 
 
